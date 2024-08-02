@@ -1,3 +1,1 @@
-"# ClowdShip" 
-"# ClowdShip" 
-"# SmartChat" 
+Email: kapil@careerxpo.in if u wanna buy SmartChat.tech
